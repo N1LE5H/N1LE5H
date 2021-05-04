@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @N1LE5H
+- 👀 I’m interested in photography, football and java coding
+- 🌱 I’m currently learning how to edit portraits
